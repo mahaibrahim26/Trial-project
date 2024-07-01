@@ -8,3 +8,10 @@ are you learning me Arabic?
 What me?
 Let me finish 😡 
 
+
+
+what?What?
+
+this... this..
+
+DUDEEEEE... :neckbeard: 
